@@ -2,9 +2,9 @@
 Daniel Tiger’s 5 Minute Stories
 ===============================
 
-1. Goodnight, Daniel Tiger
+1. [Goodnight, Daniel Tiger](https://www.amazon.com/gp/video/detail/B00BOWSOVA/ref=stream_prime_hd_ep?autoplay=1&t=786)
 2. [Daniel Goes to School](https://www.amazon.com/gp/video/detail/B009C47S3M/ref=stream_prime_hd_ep?autoplay=1&t=0)
-3. Daniel’s New Friend
+3. [Daniel’s New Friend](https://www.amazon.com/gp/video/detail/B00IITHEPO/ref=stream_3p_hd_ep?autoplay=1&t=0)
 4. [Daniel Visits the Doctor](https://www.amazon.com/gp/video/detail/B009C47S3M/ref=stream_prime_hd_ep?autoplay=1&t=784)
 5. [Daniel Tries a New Food](https://www.amazon.com/gp/video/detail/B00BI0OBXS/ref=stream_prime_hd_ep?autoplay=1&t=834)
 6. [Daniel’s First Sleepover](https://www.amazon.com/gp/video/detail/B00BOLFITW/ref=stream_prime_hd_ep?autoplay=1&t=0) (s1e20)
