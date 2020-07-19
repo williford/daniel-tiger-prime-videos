@@ -1,7 +1,11 @@
+Links to Amazon Prime Video - May Require Subscription to PBS Kids
+
+Times linked to second episode may be approximate.
+
 Season 1
 ========
-* "Daniel's Birthday"	Today is Daniel's birthday and he, his mother, Katerina Kittycat, and O the Owl go to Baker Aker's bakery to pick out his cake. A bumpy ride home on Trolley smashes it, but it still tastes good.
-* "Daniel's Picnic"	The rain ruins Daniel, Prince Wednesday, and Miss Elaina's picnic until they decide to have it indoors.
+* "[Daniel's Birthday](https://www.amazon.com/gp/video/detail/B009C47CM4/ref=stream_prime_hd_ep?autoplay=1&t=0)" - Today is Daniel's birthday and he, his mother, Katerina Kittycat, and O the Owl go to Baker Aker's bakery to pick out his cake. A bumpy ride home on Trolley smashes it, but it still tastes good.
+* "[Daniel's Picnic](https://www.amazon.com/gp/video/detail/B009C47CM4/ref=stream_prime_hd_ep?autoplay=1&t=780)" - The rain ruins Daniel, Prince Wednesday, and Miss Elaina's picnic until they decide to have it indoors.
 * "Daniel Visits School"	Daniel is nervous about going to school for the first time. He helps Teacher Harriet check on things before school gets started.
 * "Daniel Visits the Doctor"	Daniel is anxious about getting a checkup at the doctor's office.
 * "Daniel's Babysitter"	Prince Tuesday babysits Daniel and they have fun in a homemade jungle.	September 4, 2012
